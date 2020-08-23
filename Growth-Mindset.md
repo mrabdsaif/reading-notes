@@ -10,3 +10,5 @@
     2. The future you need is the motivated for you.
     3. I know Stupid people with loads of money, money comes and goes, keep your self energitic 
 
+* line 
+& graph 
